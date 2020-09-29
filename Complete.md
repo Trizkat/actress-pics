@@ -229,7 +229,7 @@
 * Natasha Malkova 3
 * Nautica Thorn
 * Nicole Aniston 4
-* Nicolette Shae
+* Nicolette Shea
 * Nika Noire
 * Nina Elle 2
 * Nina Hartley 3
