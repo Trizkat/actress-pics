@@ -12,13 +12,13 @@
 * Abigail Mac 4
 * Addison Lee
 * Adria Rae 5
-* Adriana Chechik 2
-* Aidra Fox 7
-* AJ Applegate
+* Adriana Chechik 3
+* Aidra Fox 9
+* AJ Applegate 6
 * Alana Cruise 4
 * Alessa Savage
 * Alessandra Jane
-* Alex Blake
+* Alex Blake 6
 * Alex Coal
 * Alex Harper 2
 * Alexa Grace
@@ -32,7 +32,7 @@
 * Alyssia Kent
 * Amber Ivy 2
 * Anastasia Morna
-* Angela White 2
+* Angela White 7
 * Angelica Raven 2
 * Angelina Valentine
 * Ann Marie 2
@@ -40,7 +40,7 @@
 * Anna De Ville 4
 * Anna Polina 4
 * Anny Aurora
-* Anya Olsen 4
+* Anya Olsen 5
 * Aria Alexander 3
 * Ariana Marie 7
 * Ariella Ferrera 2
@@ -92,9 +92,10 @@
 * Cassidy Banks
 * Cassidy Klein 7
 * Cassie Laine 2
-* Chanel Preston 8
+* Chanel Preston 9
 * Charley Chase 5
 * Charlotte Stokely 2
+* Chloe Amour 7
 * Chloe Carter 6
 * Chloe Couture 2
 * Christina Shine 3
@@ -146,12 +147,13 @@
 * Ivy Lebelle
 * Ivy Wolfe 2
 * Izzy Lush
-* Jada Stevens 6
+* Jada Stevens 8
 * Jade Nile 3
 * Janice Griffith 6
 * Jasmine Webb 2
 * Jay Taylor
 * Jayden Cole 2
+* Jaye Summers 7
 * Jelena Jensen 2
 * Jenna J Foxx
 * Jenna Sativa
@@ -170,6 +172,7 @@
 * Judy Jolie 2
 * Julia Bond
 * Jynx Maze 2
+* Kagney Linn Karter
 * Kali Roses 6
 * Karlee Grey 6
 * Karma RX
@@ -178,7 +181,7 @@
 * Katana Kombat
 * Kate England
 * Katie Morgan 2
-* Katrina Jade
+* Katrina Jade 5
 * Kayden Kross
 * Keisha Grey 4
 * Kelsi Monroe 4
@@ -194,13 +197,14 @@
 * Kristen Scott 3
 * Kristina Rose
 * Kylie Le Beau
+* Kylie Page 3
 * Lana Rhoades 4
 * Lana Violet
 * Layla London 3
 * Lela Star 8
 * Lena Anderson
 * Lena Paul 4
-* Lilly Love 3
+* Lilly Love 4
 * Lily Adams 12
 * Lily LaBeau 2
 * Lily Lane 2
@@ -217,14 +221,14 @@
 * Megan Rain 4
 * Melissa Moore 4
 * Mia Lelani
-* Mia Malkova 4
+* Mia Malkova 5
 * Misha Cross 3
 * Missy Martinez
 * Misty Stone 2
 * Moka Mora 2
 * Molly Stewart
 * Morgan Lee
-* Natalia Starr 2
+* Natalia Starr 3
 * Natalie Brooks
 * Natasha Malkova 3
 * Nautica Thorn
@@ -266,6 +270,6 @@
 * Vicki Chase
 * Vienna Black 1
 * Violet Starr
-* Whitney Wright
+* Whitney Wright 6
 * Yhivi 2
 * Zoey Monroe 3
