@@ -23,6 +23,7 @@
 * Alex Harper 2
 * Alexa Grace
 * Alexa Nova
+* Alexis Adams 5
 * Alexis Fawx 6
 * Alexis Texas 4
 * Alina Lopez 5
@@ -67,6 +68,7 @@
 * Bonnie Rotten
 * Brandi Love 3
 * Brea Lynn 2
+* Breanne Benson 4
 * Bree Olson
 * Brett Rossi 3
 * Briana Blair 3
@@ -99,6 +101,7 @@
 * Chloe Carter 6
 * Chloe Couture 2
 * Christina Shine 3
+* Daisy Stone 4
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
@@ -125,6 +128,7 @@
 * Gabriella Paltrova
 * Georgie Lyall 3
 * Gia Derza 2
+* Gia Paige 4
 * Gianna Dior 5
 * Gigi Allens
 * Gina Gerson 2
@@ -168,7 +172,7 @@
 * Jillian Janson 6
 * Joanna Angel
 * Joesline Kelly 4
-* Jojo Kiss
+* Jojo Kiss 6
 * Judy Jolie 2
 * Julia Bond
 * Jynx Maze 2
@@ -208,6 +212,7 @@
 * Lily Adams 12
 * Lily LaBeau 2
 * Lily Lane 2
+* Lily Rader 4
 * Lindsay Meadows
 * Lisa Ann
 * London Keyes
