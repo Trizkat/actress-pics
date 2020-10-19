@@ -26,7 +26,10 @@ Number is only added when need to further differentiate.
 
 [More info on structure, naming, as well as examples here.](./SCHEMA.md)
 
-Please join the Discord server linked below and submit examples over there, rather than submitting a PR.
+### How to Contribute
+Please join the [Discord server](https://discord.gg/8UehF3N) and link an archive over in the #actress-pics channel (please upload to something like MEGA/Dropbox/Google Drive if it's too large for Discord).
+
+It's easier to go through that way, and you can then be given uploader access.
 
 ### Contributors
 * _Kenny40
