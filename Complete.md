@@ -21,6 +21,7 @@
 * Alex Blake 6
 * Alex Coal
 * Alex Harper 2
+* Alex Tanner
 * Alexa Grace
 * Alexa Nova
 * Alexis Adams 5
