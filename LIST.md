@@ -1265,6 +1265,7 @@ Victoria Vargaz
 Victoria Voxxx
 Victoria White
 Vienna Black
+Vienna Rose
 Vina Sky
 Vinna Reed
 Violet Monroe
@@ -1306,6 +1307,7 @@ Zoey Laine
 Zoey Monroe
 Zoey Nixon
 Zoey Portland
+Zoey Taylor
 
 ## Common Aliases 
 "FreeOnes/IAFD" or "Name - Other - common - names"
