@@ -247,6 +247,7 @@
 * Olive Glass 3
 * Paris Lincoln 2
 * Parker Swayze 3
+* Peta Jensen
 * Piper Perri
 * Priya Rai
 * Quinn Wilde 2
