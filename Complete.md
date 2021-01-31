@@ -98,6 +98,7 @@
 * Cassie Laine 2
 * Chanel Preston 9
 * Charley Chase 5
+* Charlotte Sins
 * Charlotte Stokely 2
 * Chloe Amour 7
 * Chloe Carter 6
@@ -183,6 +184,7 @@
 * Karlee Grey 6
 * Karma RX
 * Karmen Karma 2
+* Kat Dior
 * Kat Hunter
 * Katana Kombat
 * Kate England

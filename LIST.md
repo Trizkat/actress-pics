@@ -333,6 +333,7 @@ Charity Crawford
 Charley Chase
 Charlotte Cross
 Charlotte Sartre
+Charlotte Sins
 Charlotte Stokely
 Charmane Star
 Chastity Lynn
