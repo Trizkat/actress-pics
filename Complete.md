@@ -101,7 +101,7 @@
 * Charlotte Stokely 2
 * Chloe Amour 7
 * Chloe Carter 6
-* Chloe Couture 2
+* Chloe Cherry 2
 * Christina Shine 3
 * Daisy Stone 4
 * Dani Daniels
@@ -262,10 +262,12 @@
 * Sabina Rouge 3
 * Samantha Rone 4
 * Samantha Saint 3
+* Sammie Rhodes
 * Sasha Grey 2
 * Selena Rose
 * Shyla Jennings 2
 * Siri
+* Sophia Santi
 * Stevie Shae
 * Stoya
 * Sydney Cole 4

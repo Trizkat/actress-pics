@@ -234,6 +234,7 @@ Bella Rolland
 Belladonna
 Bellah Dahl
 Belle Noire
+Beverly Hills
 Bianka Lovely
 Bibi Jones
 Blair Williams
@@ -340,7 +341,7 @@ Cherie Deville
 Cherry Kiss
 Chloe Amour
 Chloe Carter
-Chloe Couture
+Chloe Cherry
 Chloe Foster
 Chloe Scott
 Chloe Temple
@@ -397,6 +398,7 @@ Demi Sutra
 Denice Klarskov
 Desiree Night
 Destiny Lovee
+Devon
 Devon Green
 Devon Lee
 Diamond Foxxx
@@ -564,6 +566,7 @@ Jane Wilde
 Janessa Jordan
 Janey Doe
 Janice Griffith
+Janine Lindenulder
 Jasmine Caro
 Jasmine Jae
 Jasmine Jolie
@@ -579,6 +582,7 @@ Jazmine Jayyde
 Jeanie Marie Sullivan
 Jelena Jensen
 Jemma Valentine
+Jenaveve Jolie
 Jenevieve Hexxx
 Jenna Haze
 Jenna J Foxx
@@ -1251,6 +1255,7 @@ Vanessa Veracruz
 Vanna Bardot
 Veronica Avluv
 Veronica Radke
+Veronica Rayne
 Veronica Rodriguez
 Veronica Snow
 Veronica Vega
@@ -1334,10 +1339,11 @@ Busty Sarai / Sarai - Alex Allen - Sarai Keef
 ### C
 Carlota Teen / Penelope Cum
 Charley Chaplin / Sahara Skye
-Chloe Couture / Chloe Cherry
+Chloe Cherry / Chloe Couture
 
 ### D
 Dahlia Sky - Bailey Blue
+Devon / Devon Blue - Devin Striker - Debra Dillon
 
 ### E
 
