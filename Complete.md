@@ -241,7 +241,7 @@
 * Nicole Aniston 4
 * Nicolette Shea
 * Nika Noire
-* Nina Elle 2
+* Nina Elle 3
 * Nina Hartley 3
 * Nina North 1
 * Olive Glass 3
