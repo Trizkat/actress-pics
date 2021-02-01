@@ -829,6 +829,7 @@ Lucy Bell
 Lucy Doll
 Lucy Heart
 Lucy Li
+Lulu Chu
 Ludella Hahn
 Luna Corazon
 Luna Lain
