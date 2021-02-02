@@ -1252,6 +1252,7 @@ Tysen Rich
 
 ### U
 Uma Jolie
+Uma Stone
 
 ### V
 Valentina Nappi
