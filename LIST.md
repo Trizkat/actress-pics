@@ -398,6 +398,7 @@ Della Dane
 Demi Lowe
 Demi Sutra
 Denice Klarskov
+Desiree Dulce
 Desiree Night
 Destiny Lovee
 Devon
@@ -447,6 +448,7 @@ Emma Evins
 Emma Hix
 Emma Mae
 Emma Snow
+Emma Starletto
 Emma Stoned
 Erin Rodgers
 Esmi Lee
@@ -480,6 +482,7 @@ Frida Stark
 ### G
 Gabbie Carter
 Gabby Quinteros
+Gabi Paltrova
 Gabriella Fox
 Gabriella Paltrova
 Genevieve Sinn
@@ -553,10 +556,12 @@ Izy Bella Blue
 Izzy Lush
 
 ### J
+Jackie Rogen
 Jackie Wood
 Jacky Joy
 Jaclyn Taylor
 Jada Fire
+Jada Kai
 Jada Stevens
 Jade Baker
 Jade Jantzen
@@ -570,6 +575,7 @@ Janey Doe
 Janice Griffith
 Janine Lindenulder
 Jasmine Caro
+Jasmine Grey
 Jasmine Jae
 Jasmine Jolie
 Jasmine Webb
