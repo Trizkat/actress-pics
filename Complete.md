@@ -26,7 +26,7 @@
 * Alexa Grace
 * Alexa Nova
 * Alexis Adams 5
-* Alexis Fawx 6
+* Alexis Fawx 7
 * Alexis Texas 4
 * Alina Lopez 5
 * Alison Rey 4
@@ -240,6 +240,7 @@
 * Missy Martinez
 * Misty Stone 2
 * Moka Mora 2
+* Molly Mae 3
 * Molly Stewart
 * Morgan Lee
 * Natalia Starr 3
