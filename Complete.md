@@ -27,7 +27,7 @@
 * Alexa Nova
 * Alexis Adams 5
 * Alexis Fawx 7
-* Alexis Texas 4
+* Alexis Texas 8
 * Alina Lopez 5
 * Alison Rey 4
 * Allie Haze
