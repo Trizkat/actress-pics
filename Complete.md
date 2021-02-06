@@ -59,6 +59,7 @@
 * Audrey Miles 2
 * Audrey Noir
 * August Ames 5
+* August Taylor 
 * Aurora Snow 2
 * Austyn Moore
 * Autumn Falls 5
