@@ -157,6 +157,7 @@
 * Isabelle Deltore
 * Isis Love
 * Ivy Lebelle
+* Ivy Jones
 * Ivy Wolfe 2
 * Izzy Lush
 * Jada Stevens 8
