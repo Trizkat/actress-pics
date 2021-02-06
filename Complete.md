@@ -106,6 +106,7 @@
 * Chloe Amour 7
 * Chloe Carter 6
 * Chloe Cherry 2
+* Chloe Scott 2
 * Christina Shine 3
 * Daisy Stone 4
 * Dani Daniels
