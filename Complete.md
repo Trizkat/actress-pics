@@ -161,6 +161,7 @@
 * Ivy Wolfe 2
 * Izzy Lush
 * Jada Stevens 8
+* Jade Baker 1
 * Jade Nile 3
 * Janice Griffith 6
 * Jasmine Webb 2
