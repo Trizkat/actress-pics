@@ -70,9 +70,10 @@
 * Austyn Moore
 * Autumn Falls 5
 * Ava Little
-* Bailey Brooke 2
+* Bailey Brooke 3
 * Bambi Black
 * Bella Bends 2
+* Bella Elise Rose
 * BiBi Jones 3
 * Blair Williams 6
 * Bonnie Rotten
@@ -85,10 +86,11 @@
 * Briana Blair 3
 * Brianna Love 2
 * Bridgette B
-* Britney Amber 2 
+* Britney Amber 5
 * Brooke Adams
 * Brooke Haze
 * Brooklyn Blue
+* Brooklyn Chase
 * Brooklyn Gray 2
 * Cadey Mercury 3
 * Cali Carter
