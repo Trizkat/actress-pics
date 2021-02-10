@@ -37,7 +37,9 @@
 * Alyssa Reece
 * Alyssia Kent
 * Amber Ivy 2
+* Ana Foxxx 2
 * Anastasia Morna
+* Angel Smalls 1
 * Angela White 7
 * Angelica Raven 2
 * Angelina Valentine
@@ -53,8 +55,9 @@
 * Arya Fae
 * Asa Akira 5
 * Ashley Adams 4
-* Ashly Anderson
+* Ashly Anderson 5
 * Ashlynn Brooke
+* Athena Faris 2
 * Athena Palomino
 * Athena Rayne
 * Aubree Valentine
